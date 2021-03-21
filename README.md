@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @salil-p
-- 👀 I’m interested in bha-di-bhah!
+- 👀 I’m interested in bhah-di-bhah!
 - 🌱 I’m currently learning bak-bak.
 - 💞️ I’m looking to collaborate on self-isolation.
 - 📫 How to reach me illcallu@example.com
